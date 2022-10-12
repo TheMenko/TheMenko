@@ -1,4 +1,4 @@
-### Hello there, I'm Menko
+### Hello there, I'm Menko :v:
 I'm a software engineer and open-source enthusiast.
 
 My interests are broad. And i spend my free time exploring the posibilities of engineering.  
